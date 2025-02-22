@@ -5,7 +5,7 @@
 
 With the Net Mirror app, you can enjoy HD video streaming, download content for offline viewing, and watch movies without ads. The app supports multiple languages and is compatible with Android, iOS, Windows, and Smart TVs.
 
-# Download: 👉 https://modhello.com/ 👈
+# Download: 👉 https://modhello.com/netflix/ 👈
 
 ![Netflix-Mirror-APK-For-Android-TV](https://github.com/user-attachments/assets/db63a12b-0a4a-4459-9d45-f15fa803fb3f)
 
